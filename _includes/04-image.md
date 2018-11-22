@@ -1,1 +1,0 @@
-[opysko learning]
